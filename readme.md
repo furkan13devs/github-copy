@@ -1,1 +1,1 @@
-burdan canlı bakın https://<swantexq.github.io/githuv-copy>
+burdan canlı bakın wantexq.github.io/github-copy
