@@ -1,1 +1,1 @@
-burdan canlı bakın wantexq.github.io/github-copy
+burdan canlı bakın swantexq.github.io/github-copy
